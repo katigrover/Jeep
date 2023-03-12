@@ -8,4 +8,4 @@ Week 14 video: https://youtu.be/h_VuNKqWA4U
 
 Week 15 video: https://youtu.be/R3OVcuHCx2I
 
-Week 16 video:
+Week 16 video: https://youtu.be/rbr2MJSEjQM
